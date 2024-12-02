@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Full Stack Development.**
 
-- 💬 Ask me about **java, javascript, frontend development**
+- 💬 Ask me about **java, and MERN **
 
 - 📫 How to reach me **adityamah2002@gmail.com**
 
