@@ -13,7 +13,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1tfGD5Fj6Gn4Wp8lH5xs7tOB0_pnFwtRO/view?usp=sharing](https://drive.google.com/file/d/1tfGD5Fj6Gn4Wp8lH5xs7tOB0_pnFwtRO/view?usp=sharing)
 
-- ⚡ Fun fact **I like nuts more than chocolates.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
